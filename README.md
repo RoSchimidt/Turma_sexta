@@ -1,1 +1,1 @@
-# O mais campeão do mundo!!!
+# O maior campeão do mundo!!!
